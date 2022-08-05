@@ -3,6 +3,6 @@
 
 **Here are some ideas to get you started:**
 
-🙋‍♀️ A short introduction - Axgura is a IIGT?
+🙋‍♀️ A short introduction - Axgura is a IITG ?
 
 🌈 Contribution guidelines - You can join the community by emailing us via [axgurah@gmail.com](axgurah@gmail.com)
